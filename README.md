@@ -7,10 +7,7 @@ Sérgio Gomes
 
 José Henrique Brito
 
-
-https://ipcapt-my.sharepoint.com/:f:/g/personal/jbrito_ipca_pt/EtfhUDimKQFDo8tSCIFWTKEBfJCZOgWKNBdga0PWeVaFnw?e=TBl3Mg
-
-
+https://ipcapt-my.sharepoint.com/:f:/g/personal/jbrito_ipca_pt/EtfhUDimKQFDo8tSCIFWTKEBfJCZOgWKNBdga0PWeVaFnw?e=qIfQqu
 
 https://user-images.githubusercontent.com/19577316/118958462-5be69c80-b959-11eb-87ff-3cb173067360.mp4
 
