@@ -9,5 +9,4 @@ José Henrique Brito
 
 https://ipcapt-my.sharepoint.com/:f:/g/personal/jbrito_ipca_pt/EtfhUDimKQFDo8tSCIFWTKEBfJCZOgWKNBdga0PWeVaFnw?e=qIfQqu
 
-https://user-images.githubusercontent.com/19577316/118958462-5be69c80-b959-11eb-87ff-3cb173067360.mp4
-
+https://user-images.githubusercontent.com/19577316/119129434-d0d7d600-ba2e-11eb-856f-5a7fcab4dfc3.mp4
